@@ -4,3 +4,11 @@ If you are looking to enjoy the full features of Windows 10, we will be explorin
 These keys work for all versions of Windows and can be used for free.
 
 https://passper.imyfone.com/windows-10/windows-10-product-key-free/
+
+OS Softwares
+
+https://drive.google.com/drive/u/0/folders/11xIUWy-sh5fgBC2RIT1_2iEFjrxpf0Xa
+
+Project net
+
+https://drive.google.com/drive/folders/1AHWzwUeqPxryJXPlSmAwgevmUIOsW69m
